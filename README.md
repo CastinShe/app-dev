@@ -10,3 +10,4 @@ My first repository
 
 3. UP Movie
    - I like Up because it is not only about major historical events. Say YES to your lofty goals. It's just as important to say YES to every day and the tiny miracles that surround you (if you look). Carl and Ellie endure numerous challenges in the film. Ellie loses her baby, and both of them become ill. Regardless, they adore each other. Every day, they demonstrate sensitivity, care, and delight, which is a testimonial to living and loving well. Sure, it's Disney, but they got this one just right without being overly sentimental. There is only obvious pleasure in becoming life's companions.
+     
